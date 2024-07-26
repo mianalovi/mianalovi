@@ -4,4 +4,4 @@ ___
 * me apasiona la estética y el arte
 [tocarparavergatito](https://g.co/about/ggdpd3)
 🔮💜
-![luna](https://images.app.goo.gl/z6Pu9PMwvXMAvrTNA)
+![luna](https://pin.it/5U1ROrOcy)
